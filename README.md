@@ -1,5 +1,2 @@
-<p align="center"> 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙄'𝙢 𝙮𝙤𝙪𝙣𝙜, 𝙖𝙧𝙧𝙤𝙜𝙖𝙣𝙩 𝙖𝙣𝙙 𝙝𝙖𝙩𝙚 𝙚𝙫𝙚𝙧𝙮𝙩𝙝𝙞𝙣𝙜 𝙮𝙤𝙪 𝙨𝙩𝙖𝙣𝙙 𝙛𝙤𝙧 - 𝙈𝙖𝙘𝙝𝙞𝙣𝙚 𝙂𝙞𝙧𝙡  </p>
-
-
-<p align="center"> 𓆉 </p>
+<p align="center" img src="https://media.discordapp.net/attachments/855772852027785235/1419060055910781028/ezgif.com-effects_1.gif?ex=68d0622a&is=68cf10aa&hm=3d92f8a96b4603ffc881095c2be09e5f14661266c21b1fe887eef54b10b1a485&=&width=800&height=600"</p>
 
